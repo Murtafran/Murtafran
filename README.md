@@ -12,7 +12,7 @@ Você pode entrar em contato comigo 📫
 queirozfrancine7@gmail.com
 
 
-![(https://pin.it/30sQyOQyV)](link)
+![https://pngfre.com/hello-kitty-png/hello-kitty-29/](link)
 
 
 <!--
