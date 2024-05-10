@@ -11,7 +11,8 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 queirozfrancine7@gmail.com
 
-![]((https://pngfre.com/hello-kitty-png/hello-kitty-29/))
+> Escrito por Alura Start
+
 
 
 
