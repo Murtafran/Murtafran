@@ -1,5 +1,5 @@
-### Hi there 👋
-Boas vindas ao meu perfil 💙💙
+### Boas vindas ao meu perfil 💙💙
+
 Meu nome é Francine Queiroz
 
 Estou estudando na Alura
